@@ -1,0 +1,1 @@
+# QA1_FX_KaterynaBondarchuk2
